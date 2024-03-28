@@ -1,0 +1,1 @@
+Rivian stock price
